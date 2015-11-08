@@ -1,0 +1,11 @@
+Miniaturist, laser cutting machine | <a href='http://www.jspolyfoam.com'>acrylic cutting machine</a> | | paper cutting machine cutting machine | | leather flannelette cloth cutting machine cutting cutting machine | | felt paper cutting machine | | printing plate cutting machine drills very organic glass plate | | kraft paper cutting machine laser cutting machine laser cutting machine laser cutting bed | | | flannelette super wide laser cutting machine | paper cutting laser cutting machine laser cutting machine | double long laser cutting machine | customized paper-cut DiaoQian laser cutting bed | large laser cutting machine laser cutting machine | | felt plush toys | shoes material hollow out laser cutting machine laser cutting machine laser cutting machine | | clean cloth filter cloth laser cutting machine and cutting machine
+Suitable for material:
+Acrylic, organic glass, cloth, leather, wood, plastic, paper, glass, decoration, furniture, model, craft gifts, furniture, advertisement sign, model making, food packaging, electronics, medicine, packaging, printing plate, shell plate, etc.
+Main application:
+1, the advertising industry, acrylic, organic glass, advertising light boxes, advertising words and organic glass display rack, etc.;
+2, electrical and electronic industry, electrical appliances shell, keyboard, electronic components, circuit boards, cable, cable, etc.;
+3, craft gift industry: bamboo crafts, bamboo slips, packing box, shell, porcelain, silverware, crystal trophy, etc.;
+4, home decoration industry: wood floor, acrylic lamp act the role ofing, furniture, sculpture, composite board, PVC, etc.;
+5, stone industry: marble, quartz, granite, ceramic tile, polished tile, crystal brick, etc.;(marble laser graven images)
+6, packaging industry, rubber, PET film, packing tape, plastic film, cartons, paper, etc.;(carton printing plate, double rubber engraving cutting)
+The whole model is divided into: VD3050, VD5070 VD6090, VD1290, VD1490, VD1590, VD1690 single head, double selection, laser cutting bed custom;
